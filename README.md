@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrBlum42
+- 👀 I’m interested in ai/java/neural network/CAD
+- 🌱 I’m currently learning physics simulation
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Gmail: ofermeretzki100@gmail.com
